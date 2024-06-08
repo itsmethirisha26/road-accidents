@@ -10,3 +10,7 @@
 ### https://docs.google.com/document/d/1w0iF10pRs80ZWrOMrc5PKK1viEkhURhO/edit?usp=sharing&ouid=108654618933692994303&rtpof=true&sd=true
 ## Demonstration video
 ### https://drive.google.com/file/d/1OQmBYyqpZqHwMma2IeerQyPyKDDK5WHF/view?usp=sharing
+## Dashboard
+### https://drive.google.com/file/d/1UkKlrvAqZNRAdozRICdNJdwEHlJXykTl/view?usp=sharing
+## story telling
+### https://drive.google.com/file/d/1i6SLJF-4JgYhkw9zsGGkVB17QACP-LrN/view?usp=sharing
